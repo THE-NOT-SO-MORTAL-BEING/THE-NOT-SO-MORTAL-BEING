@@ -1,3 +1,0 @@
-- 👋 Hi, I’m @THE-NOT-SO-MORTAL-BEING
-- 👀 I’m interested in writing novels and sometimes poetry
-- 📫 How to reach me instagram/_the_not_so_mortal_being_
